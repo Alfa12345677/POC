@@ -1,0 +1,3 @@
+# POC
+
+![IMG_20240711_223731_714](https://github.com/Alfa12345677/POC/assets/99698898/1e6b1fa7-6d57-4414-9c35-ad013f42c696)
